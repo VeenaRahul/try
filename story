@@ -1,3 +1,3 @@
 The angry bird
 
-The red birds ued to be happy
+The red birds used to be happy and playful until the green pigs arrived.
